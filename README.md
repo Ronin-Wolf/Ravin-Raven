@@ -1,4 +1,4 @@
-# Ravin-Raven Arts and Crafts
+# Ravin' Raven Arts and Crafts
 
 Hello! I am an arist and leatherworker. 
 
